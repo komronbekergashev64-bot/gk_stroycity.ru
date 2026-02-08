@@ -1,1 +1,0 @@
-# gk_stroycity.ru
